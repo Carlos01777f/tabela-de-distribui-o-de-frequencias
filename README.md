@@ -1,0 +1,1 @@
+# tabela-de-distribui-o-de-frequencias
